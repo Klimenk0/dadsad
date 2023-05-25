@@ -1,1 +1,1 @@
-[# dadsad](https://klimenk0.github.io/dadsad/)
+(https://klimenk0.github.io/dadsad/)
